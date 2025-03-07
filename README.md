@@ -2,7 +2,7 @@
 - 👀 I’m interested in nada.
 - 🌱 I’m currently learning Técnico em Informática.
 - 💞️ I’m looking to collaborate on nada.
-- 📫 How to reach me não encontra.
+- 📫 How to reach me? Não dá.
 - 😄 Pronouns: ele
 - ⚡ Fun fact: não sei, por que quer saber?
 
